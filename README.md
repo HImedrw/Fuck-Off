@@ -1,2 +1,2 @@
-Fuclk off
+Fuck off
 
